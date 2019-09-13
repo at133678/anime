@@ -1,2 +1,2 @@
-# anime
+# Granblue Fantasy
  
